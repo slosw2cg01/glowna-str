@@ -1,1 +1,1 @@
-# glowna-str
+fuszerka
